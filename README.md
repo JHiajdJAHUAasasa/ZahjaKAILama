@@ -1,4 +1,4 @@
-# (((√))ʟᴀ ᴠᴀʀɪᴛᴀ ᴅᴇ ᴇᴍɪʟɪᴀɴᴏ! ᴠɪʀᴀʟ ᴠɪᴅᴇᴏ ᴅᴇ ʟᴇᴀᴋᴇᴅ ᴍᴍꜱ ᴏʀɪɢɪɴᴀʟ ꜰʀᴇᴇ ᴅᴏᴡɴᴀʟᴏᴅ
+# (((√))(((√))ᴇʟ ꜱɪʀɪ! ᴠɪʀᴀʟ ᴠɪᴅᴇᴏ ᴅᴇ ʟᴇᴀᴋᴇᴅ ᴍᴍꜱ ᴏʀɪɢɪɴᴀʟ ꜰʀᴇᴇ ᴅᴏᴡɴᴀʟᴏᴅ!
 
 Hace 13 seg-Las redes sociales han estallado luego de que se reportara en las tendencias que un supuesto video íntimo de la joven cantante “la varita de emiliano” y el rapero Tekashi69, se filtró a la red.
 
